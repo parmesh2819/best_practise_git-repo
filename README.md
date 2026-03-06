@@ -1,3 +1,3 @@
 
-gowtham and brathaio raja area assiting me for now
+gowtham and bharathi raja are assiting me for now on git tasks.
 
